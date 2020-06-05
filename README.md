@@ -1,2 +1,1 @@
-# fedsfdsfdsdfsdf
-adadadadad
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNToyMzNibG9nLmNvbUA1LjE4MC45Ni4yMDc6NTI2MjU=#%E6%88%91%E7%9A%84%E6%A2%AF%E5%AD%90
